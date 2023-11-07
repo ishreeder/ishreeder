@@ -14,6 +14,8 @@ User of the RammerHead website, here's the link to the rammerhead: https://githu
 
 website to rammerhead: https://civilwar.v0x.eu/
 
+the link to rammerhead is to full/stressed with other users, heres another link: https://hello-banana-e.qualitypoolsboulder.com/ (it works better then other)
+
 check out my issue for the rammerhead:
 https://github.com/binary-person/rammerhead/issues/78
 <!---
