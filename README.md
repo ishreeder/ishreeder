@@ -4,7 +4,7 @@
 - 💞️ I’m looking to help new users and current users of the Rammerhead website with issues. (links down below)
 - 📫 How to reach me ireeder@robinsonschools.com (copy and paste)
 - also reach me on discord. user:
-- dum_jinx.
+- ish_
 
 single life is better life. it provides a good mental and physical relationship with the Bible and God.
 
