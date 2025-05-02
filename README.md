@@ -2,9 +2,9 @@
 - 👀 I’m interested in Music, and other.
 - 🌱 I’m currently learning technology in high school.
 - 💞️ I’m looking to help new users and current users of the Rammerhead website with issues. (links down below)
-- 📫 How to reach me ireeder@robinsonschools.com (copy and paste)
+- 📫 How to reach me unknownscp11@gmail.com (copy and paste)
 - also reach me on discord. user:
-- ish_
+- ishreederloll
 
 single life is better life. it provides a good mental and physical relationship with the Bible and God.
 
